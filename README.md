@@ -1,1 +1,1 @@
-# human-studies-101
+#Human Studies 101
